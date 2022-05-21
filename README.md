@@ -6,8 +6,8 @@ GitHub ~ Jeming Zhu-Song
 
 Hey there 👋 If you’re new here, my name’s Jeming!
 
-I’m currently a student at UNSW Sydney, studying a Bachelor’s of Commerce and a 
-Bachelor’s of Computer Science.
+I’m currently a student at UNSW Sydney, studying a Bachelors of Commerce and a 
+Bachelors of Computer Science.
 
 I’ve completed a bunch of internships and placements related to both fields/areas of my degree.
 Technology, Software Engineering, Startups, Consulting, and Finance are some of my interests
