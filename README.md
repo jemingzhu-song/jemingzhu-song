@@ -14,8 +14,7 @@ Technology, Software Engineering, Startups, Consulting, and Finance are some of 
 right now in the professional space!
 
 In my spare time, I love going to the gym, playing chess, cooking, playing basketball and 
-tennis, and video games! I also love snacking - my go to snack combo right now is corn chips 
-with cream cheese as a dip - I’m trying to eat healthier snacks now :(
+tennis, and video games!
 
 **What is this?**
 
