@@ -1,5 +1,3 @@
-GitHub ~ Jeming Zhu-Song
-
 🍎🍓🍉🍑🍊🍯🧀🍌🍋 🥑🍈🍐🥝🍏🥦🥒🧊💧🫐🍇🍠🍣🥨🍪🍩🧋
 
 **Who am I?**
