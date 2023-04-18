@@ -1,7 +1,3 @@
-🍎🍓🍉🍑🍊🍯🧀🍌🍋 🥑🍈🍐🥝🍏🥦🥒🧊💧🫐🍇🍠🍣🥨🍪🍩🧋
-
-**Who am I?**
-
 Hey there 👋 my name’s Jeming!
 
 Here, on my github, I store and (occasionally) share any personal projects and learnings that 
